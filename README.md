@@ -185,4 +185,6 @@ The study reinforces that investing in rural literacy is among the highest-retur
 
 Key Takeaway: Literacy is not just the ability to read and write — it is the foundation of human agency, dignity, and national progress.
 
+Drive Link: https://drive.google.com/file/d/1cFYcKO3Ccyxy1nuTVKnchmEz3RQylvDc/view?usp=drivesdk
+
 Feel free to connect with me on LinkedIn: https://www.linkedin.com/in/palak-tripathi-37a56234a/
