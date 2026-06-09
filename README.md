@@ -135,8 +135,6 @@ Carried out comparative analysis using secondary data from Census, ASER, and Oxf
 
 Authored the full research report — introduction, literature review, findings, and conclusion.
 
-Prepared the final presentation summarizing key insights and recommendations.
-
 🧠 Skills Demonstrated
 
 Social & Business Research.
